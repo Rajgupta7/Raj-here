@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on Frontend 
 - 😄 Pronouns: he/his
-- ⚡ ---------
+- ⚡ Spiritual Journey
 
 <br>
 
